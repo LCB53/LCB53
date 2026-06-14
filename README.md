@@ -8,9 +8,10 @@
 
 ![](https://i.postimg.cc/QxjMD4J8/Don-Quixote-Signature-Small.png)  ![](https://i.postimg.cc/8zPB7bNS/Meursault-Signature-Small.png)\
 i like meurdon.\
-thats all. what else do i add.
+thats all. what else do i add.\
 
-![](https://64.media.tumblr.com/e8bbc804d7776bddf44d28aa196d2b1e/d718cbb9cb3b7017-34/s100x200/b7b01da97e74c9bb6b0bb5c5a27a11028462bc64.gifv) ![](https://64.media.tumblr.com/da0aeb67cc62bd7fd310320c4359f5ca/d718cbb9cb3b7017-44/s100x200/5f519ce8998026e8413b3bd8db7a7721d738ef4f.gifv)
+![](https://64.media.tumblr.com/e8bbc804d7776bddf44d28aa196d2b1e/d718cbb9cb3b7017-34/s100x200/b7b01da97e74c9bb6b0bb5c5a27a11028462bc64.gifv) ![](https://64.media.tumblr.com/da0aeb67cc62bd7fd310320c4359f5ca/d718cbb9cb3b7017-44/s100x200/5f519ce8998026e8413b3bd8db7a7721d738ef4f.gifv)\
+![](https://komarev.com/ghpvc/?username=LCB53&label=.+✦+meurdonners+.+.&color=575e9e)
 
 i also like hongsang bc they are goated so\
 im also adding them here.
@@ -28,5 +29,6 @@ im also adding them here.
   hi, my name is zima.\
   meet me at my main.
   
-![](https://komarev.com/ghpvc/?username=LCB53&label=.+✦+meurdonners+.+.&color=575e9e)
+  [![](https://img.shields.io/badge/新-atabook-575e9e)](https://chainofothers.atabook.org/)
+  
 </div>
