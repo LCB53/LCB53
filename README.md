@@ -1,7 +1,8 @@
 
 
 <p align="center">  
-  <img src="https://i.postimg.cc/pL250V6C/meurdon-art-5.png" width="600">
+  <img src="https://i.postimg.cc/pL250V6C/meurdon-art-5.png" width="600"> <br>
+  art made by me. smiling face emoji.
 </p>
 
 <div align="center">
